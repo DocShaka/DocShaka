@@ -1,1 +1,1 @@
-![[1c6315374bcadd491289f2d48d73ca6ac1e7ea12r1-520-218_hq.gif]]
+![image](1c6315374bcadd491289f2d48d73ca6ac1e7ea12r1-520-218_hq.gif)
